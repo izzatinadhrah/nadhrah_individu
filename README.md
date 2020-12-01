@@ -1,0 +1,1 @@
+# nadhrah_individu
